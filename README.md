@@ -9,6 +9,9 @@ Education
 - Secondary School 2010 - 2014
 - Elementary School 2005 - 2010
 
+Skills
+- Word, Excel, PowerPoint, Miro
+
 Address
 - khamsrithanaporn@gmail.com
 - Phone: 0947215599
