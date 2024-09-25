@@ -10,7 +10,8 @@ Education
 - Elementary School 2005 - 2010
 
 Skills
-- Word, Excel, PowerPoint, Miro
+- Computer: Word, Excel, PowerPoint, Miro
+- Language: English, German, Thai
 
 Address
 - khamsrithanaporn@gmail.com
